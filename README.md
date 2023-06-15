@@ -1,1 +1,2 @@
 # portfolio2023
+This portfolio that represents about me. A portfolio website is a unique way to show case your work and let others know about yourself. Its like an evergreen platform for your projects, case studies, and information about. I build responsive websites that look great on all devices. its crucial that you have a unique online approach.A website portfolio will help you stand out from the crowd, show your uniqueness, build trust, and make sure that others can actually find you. There are certain areas where a website portfolio is more important than others.
